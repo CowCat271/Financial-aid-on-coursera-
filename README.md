@@ -18,7 +18,6 @@ I want to invest in my career and my education, but at this moment I can only in
 I have a solid background in "math and algorithms and problem-solving skills," so I'm eager to learn "machine learning," and that's the course that's the first step to me to making good projects that help humanity for an easy life and solve the big problem.
 My main career goal is to learn every day. I really want to learn and to progress in my career.
 "Programming" requires constant learning and improving; taking a course can help me advance in my knowledge.
-
 I plan on gaining additional skills by taking related classes and continuing my involvement with a variety of professional associations, and I noticed that a lot of companies provide internships and jobs in the related fields, and I would certainly be interested in taking them and improving myself to be one of the pioneers of "machine learning and deep learning."
 There are many opportunities in this field that the candidate can join but must have good knowledge to join these opportunities, so I see that this course with good tutorials and exercises will join me in the world's largest companies and creativity in this area.
 
